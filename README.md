@@ -1,4 +1,4 @@
-### Hi 👋 My name is Bruno!
+### Hi 👋 I'm Bruno!
 
 ### Skills
 
